@@ -1,2 +1,3 @@
 # FSD NANO PROJECT
-Created a notes app to be reminded of everything anytime.
+
+Problem - In this today's world people can't remember all things (Specially the important one gets forgetten earlier 😂)
