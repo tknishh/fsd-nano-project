@@ -4,4 +4,4 @@ Problem - In this today's world, people can't remember all things (Specially the
 
 Solution - Tanish and Abhinaw will explain?
 
-**Note -** Satyam is busy playin' Clash of Clans
+**Note -** Satyam is busy playin' Clash of Clans [Correction - Genshin Impact, their info is always outdated.]
